@@ -1,0 +1,1 @@
+[Statistics 251/551, SPRING 2013 projects (yale.edu)](http://www.stat.yale.edu/~pollard/Courses/251.spring2013/Projects/projects2013.html)
